@@ -1,1 +1,0 @@
-# ads_rwd_2021-_Panda-Vermelho-
